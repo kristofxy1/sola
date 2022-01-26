@@ -48,3 +48,59 @@ Prilagoditve organizmov:
 Mesoplavutarice → vsi današnji četveronožci nastali iz njih (plazilci, dvoživke, ptice, sesalci)
 
 5 množičnih izumrtji (vsa izumrtja nad 60%) → mogoče 6
+
+
+
+
+Evolucija
+
+Populacija:
+    - skupina organizmov iste vrste, ki v istem času živijo na istem območju in se uspešno razmnožujejo
+    - osnovna enota evolucije (ne organizem)
+
+Evolucijska sprememba:
+    - se zgodi, če postane neka lastnost v generaciji potomcov bolj ali manj pogosta, kot je bila v populaciji staršev
+
+Charles Darwin:
+    - 5-letna plovba z ladijo Beagle
+    - zbiral botanične, zoološke in paleontoške primerke
+    - živali Galapaškega otočja -- živali tam so se drugače razvijale -- postopno spreminjanje vrst, odkar so se predniki ločili od celine na otok
+    - nastanek človeka iz opic -- veliko sovražnikov 
+    Darwin in Wallce - teorija o evoluciji z naravnim izborom
+
+4 Darwinovi postulati:
+    1. posameznik iste vrste in celo iste ožje skupnosti ali populacije so med seboj različni (različni aleli)
+    2. Velik del te različnosti podedujejo potomci
+    3. Starši imajo vselej več potomcev, kot jih lahko preživi.
+        - Potomci se „borijo“ za obstanek:
+            - drug z drugim
+            - z osebki drugih vrst
+            - z silami nežive narave
+    4. Preživetje in razmnoževanje v novem rodu NISTA NAKLJUČNA. Bolj verjetna sta pri istih potomcih, katerih LASTNOSTI ZA PREŽIVETJE in RAZMNOŽEVANJE v danih okoliščinah BOLJ UGODNE. Te postajajo iz generacije v generacijo bolj pogoste.
+
+Pogoji za evolucijo:
+    1. različnost posameznikov znotraj populacije
+        - 1. D. P.
+        - spolno razmnoževanje (prekrižanje, naključna razporeditev)
+        - mutacija (tiste, ki se prenašajo na potomce)
+    2. hiperprodukcija
+        - 3. D. P.
+        - omejeni viri v naravi:
+            - vsi osebki ne preživijo do spolne zrelosti
+            - boj za obstanek
+            - naravni izbor
+            - vpliv na fenotip
+    3. genski sklad
+        - vsi aleli ene populacije (vseh osebkov)
+        - evolucija je spreminjanje geneskega sklada populacije 
+        - premikanje frekvence (razmerja alelov)
+        - spolno razmnoževanje alele premeša 
+            - ni evolucija, ker je razmerje enako
+
+Evolucijski dejavniki
+    - spreminjanjo genski sklad skozi generacije
+    - to so:
+        - mutacije
+        - preseljevanje (genski tok / migracije)
+        - naključje (genski zdrs / drift)
+        - naravni izbor
