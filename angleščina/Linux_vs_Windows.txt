@@ -1,0 +1,44 @@
+
+Today I am going to present you why you should prefer linux over Windows.
+Here we can see my main arguments why:
+    - customization
+    - many different options
+    - productivity
+    - free
+    - not purchase your data
+    - and a lot more
+
+# first customization
+We can se this bored every day used Windows wallpaper. 
+Just blue, same theme every time. 
+Can I change it? No.
+I can just set it to other colour or change wallpaper - boring. 
+In linux you can use whatever you like - you can even at easy way program your own theme or just use what one did before.
+Here the sky is the limit. 
+you can change all things and have multiple bars different bars and lots of more. 
+Just look at all of these different setups. 
+And because of that linux is better.
+
+# second different distributions
+In linux you have many diferent distriubtions. 
+What that is? This is basicaly configuration for one purpose - to be what it is for.
+That means that unlike on windows you use just what you need.
+Why have something that you don't need if this just uses your disk-space and your cpu cores, on the other side you don't have what is important to you.
+Because of these you should pick one distribution that is configured just for you and for your use of computers.
+From gaming, programing, just basic internet using - for all of these you have one distribution that makes it easy.
+
+#third you can be productive as never before
+Lets see about the Quarantene - we were on the computers like all day and what if we use something that fastes your productivity.
+You will make all things faster and in easier way.
+There helps linux a lot.
+You can use your terminal to do things fast and like you want.
+With linux you can make your computer works for you.
+
+# on the other hand linux is complitely free
+I don't have mony for crap 100€ Windows if i have better and totaly free Linux.
+What makes it free? - it is open source.
+That means that it source code is avaliable for public view and configuration. 
+And if you have a lot of diferent programers that can change it - all world bugs and other things will be find faster than on other payed companies.
+It is written by peoples for peoples and just for you. 
+
+I hope that you enjoyed and understand why I prefer linux over windows.
