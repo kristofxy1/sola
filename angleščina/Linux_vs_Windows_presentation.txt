@@ -8,15 +8,14 @@ So my main arguments why to use it are:
     1. you can customize it in many ways
     2. you can use many different distributions
     3. free
-    4. you can be productive as never before
 
 1. custumization
 Lets first see at customization.
 In windows we default have something like that.
-Here we see basic bar and neormal windows blue coloured theme.
+Here we see basic bar and normal windows blue colored theme.
 In windows we can change to dark or some other theme and change wallpaper like we see that I changed but we can't do much more.
 In the other hand we have Linux. Default we will have prefered distribution theme.
-But changing distribution is not only way to have diferent customization.
+But changing distribution isn't only way to have diferent customization.
 You can change it in many ways, just download one theme from internet or customize it alone.
 Everything is changable bars, app searchers and many more.
 Here we see different setups of linux and we see that really the sky is the limit.
@@ -33,16 +32,16 @@ That means that you have lightweight operating system that you can use even on o
 I don't have money to buy 100€ Windows.
 I will rather use totaly free linux that is in my opinion better.
 That makes just one more argumet why to use it.
-Besides that is linux open source and that means that all of its code is avaliable on internet.
-Maybe for normal users that isn't much but if thousants of peoples alredy checked code of operating system then I think that there isn't any data colection system like on Windows.
-Because of that linux realy have better security.
+Besides that is linux open source and that means that all of its code is avaliable on the internet.
+Maybe for normal users that isn't much but if thousands of peoples alredy checked code of operating system then I think that there isn't any data colection system like on Windows.
+Because of that linux really have better security.
 
-4. You can be productive as never before
-Lets see about the Quarantene - we were on the computers all day and what if we use something that fastes ours productivityon computers?
+Because all of that you can be productive as never before
+Lets see about the Quarantine - we were on the computers all day and what if we use something that fastes ours productivity on computers?
 You will make all things faster and in easier way.
-There helps linux a lot.
+There linux helps a lot.
 You can use your terminal to do things fast and like you want.
 You can also change your bindings and other settings that just helps you to be productive.
-With linux you can make your computer works for you.
+With linux you can make your computer work for you.
 
-I hope that you enjoyed and understand why I prefer linux over windows.
+I hope that you enjoyed and understand why I prefer linux over windows
