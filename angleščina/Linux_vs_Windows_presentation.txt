@@ -6,5 +6,35 @@ But today I am going to tell you why to use it instead of Windows that we all kn
 So my main arguments why to use it are:
     1. you can customize it in many ways
     2. you can use many different distributions
-    3. 
+    3. free
+    4. you can be productive as never before
+1. Customization
+Lets first see at default Windows light theme.
+Here we see basic bar and normal windows blue colour.
+In windows we can change to like dark theme and change wallpaper but we can't do anything else.
+In the other hand we have Linux. Default we will have prefered distribution theme.
+But we don't change it only with changing distribution.
+You can change it all. You can change to whatever other theme that will change all apps to theme that you choose.
+You can use different bars and different app searcher and many more.
+Here we see different setups of linux and here the sky is the limit.
 
+2. Different distributions 
+Before I mention something about distributions. 
+Distributions are basicaly different setups of themes and other settings and you can really choose the right one depending on your needs and wishes.
+In windows you can buy only one big operating system with many apps that you don't need and are just using your computer space.
+But in linux you can pick just the right one that have just what you need and nothing more.
+That means that you have lightweight operating system that you can use even on old computers.
+Many tells information that Windows operating system requies 32 Gb and normal linux system requires 7 Gb.
+
+3. Linux is complitely free
+I don't have money to buy 100€ Windows.
+I will rather use totaly free linux that is in my opinion better.
+
+4. you can be productive as never before
+Lets see about the Quarantene - we were on the computers all day and what if we use something that fastes your productivity.
+You will make all things faster and in easier way.
+There helps linux a lot.
+You can use your terminal to do things fast and like you want.
+With linux you can make your computer works for you.
+
+I hope that you enjoyed and understand why I prefer linux over windows.
