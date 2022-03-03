@@ -24,7 +24,7 @@ Here we see different setups of linux and we see that really the sky is the limi
 Before I mention something about distributions. 
 Distributions are basicaly different setups of themes and other settings and there are really hundrets of them avaliable.
 You can really choose the right one of them depending on your needs and wishes.
-In windows you can buy only one big operating system with many apps that you don't need, like some games and apps for just some kind of users, and that really means that you have less computer space.
+In windows you can buy only one big operating system with many apps that you don't need, like some games and apps for just some kind of users, and they are just using your computer storage.
 But in linux you can pick just the right distribution that have just what you need and nothing more.
 That means that you have lightweight operating system that you can use even on old computers or you have something for workstations and gaming computers.
 
