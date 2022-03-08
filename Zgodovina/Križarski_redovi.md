@@ -1,5 +1,5 @@
 ### Križarski redovi
-1. Malteški red (ivanovci)
+1. Malteški red (Ivanovci)
     - črni plašči, bel križ
     - umaknejo se na Ciper
         - Podos
@@ -99,5 +99,5 @@
 - če je kmet šel v mesto in ga zemljiški gospod eno leto ni zahteval nazaj, postane svoboden
 - pravice:
     - pravica do obzidja
-    - pravica do sejmov, pobifanja pristojbin (cestnin, mostnin)
+    - pravica do sejmov, pobiranja pristojbin (cestnin, mostnin)
     - pravica
