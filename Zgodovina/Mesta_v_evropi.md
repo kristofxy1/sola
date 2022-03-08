@@ -222,3 +222,89 @@ __Univerze__
     - želi si biti dominikanec → življneje v uboštvu 
     - starši se ne strijajo (poskusijo z lepa in potem grdo)
     - dominikanci ga vzamejo pod okrilje i peljejo ga v Pariz (sreča se z Albertom)
+- V 14. st. se začne srednjeveški svet rušiti vzroki:
+    - notranji spori + zunanji vpadi
+    - pešanje cesarske moči
+    - kriza papeštva
+    - kuga (Evropo v 14. st.)
+        - po obleganju Kafe jo prinesejo Mongoli
+        - pomre od 40-70% prebivalstva
+        - ljudje tarnajo → v zadnjem stoletju sr. veka pade senca na celoten srednji vek
+# Mongoli
+- l. 1206 postane Temudžin vrhovni kan - Džingiskan
+- kan = voditelj vseh mongolskih plemen
+- l. 1215 zavzeme Peking
+- prestolnica v Karakorumu → prevzemejo kitajsko kulturo (naslednik Kublej kan prestavi prestolnico v Peking)
+- ustanovi trgovsko povezavo s Perzijo
+    - zaradi spora jo napade
+- l. 1241 prodrejo njegovi potomci proti Evropi pred vrati (en krak Hrvaška drugi Poljska)
+    - Evropa razdrta in bi jo osvojili
+    - umre Kan in se vsi vrnejo na pogreb
+- mongoliji zavlada Kublejkan → prestolnica Peking → države več ne širi ampak jo notranje utrjuje
+- na dvor povabi (konec 13. st.) evropske diplomate Marko Polo
+- Pola prosi za misjonarje → na koncu ni izvedeno
+- država že razpada → po njegovi smrti popolno v razpdu
+- v 14. st. se pod Timur(lenkom) država dvigne 
+    - prestolnica v Samarlandu
+    - proglasi se za Džingiskanovega naslednika
+    - širi imperij → zelo surov 
+    - ljudje bežijo - pridejo v Evropo - Cigani
+- Timur že musliman
+- l. 1402 sulatn Bajazid vs. Timur - bitka pri Ankari
+    - Bajzid premagan
+    - oče v bitki pri Kosovem polju 1389 premaga Srbe 
+    - Bajzid dovolj močen, da bi premagal evropo
+- bitka pri Ankari reši Evropo pred Turki
+- Turki đibki - Evropa bi jih lahko dotolkla
+- po zatonu Mongolov se Turki zopet dvignejo
+- l. 1453 Mehmed II. Osvajalec zavzame Bizanc - postane Istanbul
+- Beg učenjakov iz Bizanca v Evropo (S Italijo) 
+    - učenjaki pripeljejo znanje
+    - v S Italjanskih mestih Renesansa in Humanizem
+- v času Sulemana Veličastnega dvigne imperij do največijega obsega
+    - 1526 premaga Ogre (do SLO meje)
+    - 1529 je pred Dunajem (1. obleganje Dunaja)
+    - prežene jih oktoberski sneg
+    - pozabijo kavo → ustanovljena prva kavarna
+- Turki neporaženi do:
+    - pomorsko 1571 - bitka pri Lepantu
+        - španci, Benečani, Avstrici
+        - spomin je Rožnovencka nedelja (cela Evropa molila)
+    - kopensko 1593 - bitka pri Sisku
+        - sodelujejo tudi Slovenci
+## 100-letna vojna 1337 - 1453
+- traja 116 let - najdlje trajajoča vojna v Evropi
+    - Anglija vs. Francija
+- Gaskonija vsakič, ko je prišel angleški kralj je izrekel francoskemu kralju vazalno prisego
+- l. 1328 - Dinastija Kapetingov izumre
+    - francosi zamenjajo z dinstijo Valois
+- Edvard III. (Anglija) iz dinastije Plantagenet
+    - sorodniki Kapetingov → pričakoval je ozemlje Francije
+    - ne prizna legitimnosti novi dinastiji Valois
+- napetost se stopnjuje do vojne
+    - 1337 - 1453 - vojna
+- številni Francozi so bili na strani Anglije (Burgundija do konca)
+- Anglija pošlje vojsko v Francijo → imajo dobo oborožitev
+    - z loki zavzamejo S mesta
+- vojaške posadke se na francoskih tleh utrdijo
+    - angleži ostanejo v Franciji (ropajo...)
+- francoski kmeti so v slabem položaju
+    - začnejo se upirati svojem kralju
+    - žakerije - upori kmetov v Franciji med 100-letno vojno
+- 1415 umreta Angleški (Henrik V.) in Francoski (Karel VI.) kralja umreta
+    - Karel VII. ni mogel biti okronan, ker je bil Reims pod Angleži
+- __Ivana Orleanska__: 
+    - Angeli ji naročijo naj kralja odpelje v Reims na kronanje
+    - z majhno vojsko podre glavni zid do Reimsa Orleans
+    - Karel je okronan za kralja
+    - Ivana želi, da se Angleži čisto umaknejo
+    - Karel VII. → Karel zmagoviti
+    - uporabljajo baliste, katapulte, topove, loke, trebušete
+    - vojna se začne obračati v prid Franciji
+        -  Ivana se ne strinja s kraljem, ko sklene mir z Angleži
+        - Ivano ugrabijo Burgundijci in jo prodajo Angežem
+        - postavijo jo pred inkvizicijsko sodiše → montirani sodni proces (ve se izid)
+            - cel proces vodi k temu, da jo sežgejo kot čarovnico
+            - obsojeno jo sežgejo v mestu Rouen
+- vojna se nadaljuje in vse kar obdržijo Angleže je Calais [kale]
+- 1453 podpišejo mir (isto leto pade Bizanc)
