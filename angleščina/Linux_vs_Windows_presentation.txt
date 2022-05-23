@@ -1,10 +1,47 @@
-I am Krištof Bučar and I am going to tell you why I think that linux is better than windows.
-Here on the presentation we can see Windows logo and I think that all of you use it like every day.
-On the other side of the presentation we can se the Linux logo and here I ask you who know what is linux? Please hands up.
-For all others linux is "just" another operating system like Macos and Windows.
+I am Krištof Bučar and today I am going to tell you why I think that linux is better than windows.
+Here on the presentation we can see Windows logo and I think that all of you use Windows like every day.
+On the other side of the presentation we can see the Linux logo and here I ask you who knows what is linux? Please hands up.
+For all others linux is "just" another operating system like Macos or Windows.
 But today I am going to tell you why to use it instead of Windows that we all know very well.
+
 So my main arguments why to use it are:
     1. you can customize it in many ways
     2. you can use many different distributions
-    3. 
+    3. free
 
+1. custumization
+Lets first see at customization.
+In windows we default have something like that.
+Here we see basic bar and normal windows blue colored theme.
+In windows we can change to dark or some other theme and change wallpaper like we see that I changed but we can't do much more.
+In the other hand we have Linux. Default we will have prefered distribution theme.
+But changing distribution isn't only way to have diferent customization.
+You can change it in many ways, just download one theme from internet or customize it alone.
+Everything is changable bars, app searchers and many more.
+Here we see different setups of linux and we see that really the sky is the limit.
+
+2. Different distributions 
+Before I mention something about distributions. 
+Distributions are basicaly different setups of themes and other settings and there are really hundrets of them avaliable.
+You can really choose the right one of them depending on your needs and wishes.
+In windows you can buy only one big operating system with many apps that you don't need, like some games and apps for just some kind of users, and they are just using your computer storage.
+But in linux you can pick just the right distribution that have just what you need and nothing more.
+That means that you have lightweight operating system that you can use even on old computers or you have something for workstations and gaming computers.
+
+3. Linux is complitely free
+I don't have money to buy 100€ Windows.
+I will rather use totaly free linux that is in my opinion better.
+That makes just one more argumet why to use it.
+Besides that is linux open source and that means that all of its code is avaliable on the internet.
+Maybe for normal users that isn't much but if thousands of peoples alredy checked code of operating system then I think that there isn't any data colection system like on Windows.
+Because of that linux really have better security.
+
+Because all of that you can be productive as never before
+Lets see about the Quarantine - we were on the computers all day and what if we use something that fastes ours productivity on computers?
+You will make all things faster and in easier way.
+There linux helps a lot.
+You can use your terminal to do things fast and like you want.
+You can also change your bindings and other settings that just helps you to be productive.
+With linux you can make your computer work for you.
+
+I hope that you enjoyed and understand why I prefer linux over windows

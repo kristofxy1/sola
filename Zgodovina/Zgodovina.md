@@ -1,0 +1,369 @@
+### Križarski redovi
+1. Malteški red (Ivanovci)
+    - črni plašči, bel križ
+    - umaknejo se na Ciper
+        - Podos
+        - ko turki zavzamejo Malta
+        - ostanejo do Napoleona
+        - umaknejo v Rim
+    - poimenovani po cerkvi sv. Janeza
+2. Nemški viteški red (križarji)
+    - bela obleka črn križ
+    - po izgubi sv. dežele v Benetke - na prošnjo Friderika II. pokristjanijo Prusijo - tam sistem utrd in samostan
+    - avstrijska veja postavi pri nas utrdbe proti Madžarom in bolnišnico v LJ
+3. Templjarji 
+    - Francoski vitezi
+    - bela obleka + rdeč križ 
+    - najbogatejši - premožni vitezi ki začnejo živeti v ubožtvu - s sistemom bančništva 
+    - bogastvo zanika Francoskega Filipa IV. Lepega
+    - papeža prepriča, da jih razpasti (petek 13.)
+        - aretacija, mučenje za nesmiselna priznajanja, zažigajo velike vodje
+- viteški redovi po prihodu v Evropo prinesejo "delček svete dežele" - artikli + zanimanje 
+    - prinesejo relikvije -- uprašljivost avtentičnosti
+- razmanhitev vitiške lirike
+    - en Parsival (Wolfran von Eschonbach)
+        - vitezi okrogle mize
+        - sveti gral -- posodica z Jezusovo krvjo, ki prinaša večno življenje
+        - pomemben del dogaja na slovenskih tleh (Boč)
+#####
+- l. 1144 pade Edesa muslimanom
+- po padcu najbolj znan francoski pridigar sv. Bernard iz Clairvauxa pozove k 2. križarski vojni
+    - odpravita se francoski kralj in nemški cesar (1147 - 1149)
+    - vojaški polom: smrt, suženjstvo, kuga -- dodaten zagon muslimanom
+- l. 1187 sulatn Saladin ponovno osvoji Jeruzalem 
+    - spodbudi Evropo -- III. križarska vojna 1189-91
+        - Rihard Levjesrčni
+        - Filip II Avgust X
+        - Friderik II. Barbrosa X
+    - Rihard Levjesrčni in Saladin po dolgih letih bojev skleneta mir
+    - dovoljeno nemoteno romanje
+    - Rihard pade v ujetnoštvo na poti domov (neugoden veter na območje Slovenije)...
+- Po Saladinovi smrti se razmere poslabšajo
+- Inocenc III. pozove k IV. križarski vojni 1202 - 1204
+    - plemiči nimajo prevoza po morje - ni močnega vladarja, ki bi plačal
+    - ponudi se beneški dož Erico Dandolo
+        - v zameno zahteva osvojitev Zadra - konkurenca Benetkam
+    - Križarji osvojijo Zadar - pridruži se jim "kandidat" za bizantinski prestol
+        - če ga spravijo na prestol jih bo podprl ""
+        - v bizancu ugotovijo, da je politična nula
+        - zapletejo se v konflikt in politične spletke v Bizancu
+    - Križarji obupani (prevara) izropajo Bizanc in si ga prisvojijo
+    - v Benetke prinesejo Tetrarhe in kvadrigo
+    - v Bizancu si Benečani ustvarijo četrti 
+        - družina Marka Pola
+        - nadzor nad kasnejšo svileno potjo 
+    - IV. križarska vojna katastrofa
+- 1228-1229 Friderik II. najame Sveto Deželo
+- kasneje nojne znotraj Evrope - proti krivovercem 
+- 1291 pade zadnja krščanska utrdba v Sveti deželi
+
+# Mesta v Evropi
+- v času pozne antike mesta v Evropi propadajo (vojaški cesarji)
+    - razpad cestnega omrežja
+    - ni trgovine
+    - obrt in ohranitev mest se ne izplača
+- zaradi umaknitve ponudbe pride do avtarkije (gospodarska samozadostnost manjših skupnosti)
+    - ugasnitev trgovine in mest
+- ostanejo samo obmorska mesta → konkurirala z antiko
+- ostanki mest so nov gradbeni material - ni ostankov
+- ohrani se le še trgovanje na daljše razdalje 
+    - kupujejo le še plemiči
+    - navadni ljudje na sejmih
+- minimalna obrt se ohrani na gradovih 
+- po letu 1000 se trend spreminja
+    - porast prebivalstva po celi Evropi
+        - ni epidemij
+        - napredki v kmetijstvu
+            - triletno kolobarjenje s praho (namesto dvoletnega)
+                - 1/3 zemlje počiva
+                - 1/3 jara žita - (ječmen, oves, zelenjava)
+                    - spomladna setev pozna žetev
+                - 1/3 ozimnih žit (pšenica, ječmen, rž)
+                    - jesenska setev - zgodnja žetev
+            - izum pluga, podkve, komada (volovska vprega) → daljše njive 
+    → preseški v hrani - trgovanje - kupna moč
+- to tudi v čas križarskih vojn
+    - odpira luksuzno življenje (začimbe, svila)
+    - krepitev trgovine
+- trgovci spoznajo: povpraševanje je dovolj vliko, da bodo ljudje prišli sami
+    - naselitev v mesta → trgovci in obrtniki
+    - na varnih lokacijah
+        - pod gradovi
+        - ob rekah
+        - ob romarskih poteh
+        - ob antičnih ruševinah - material
+        - ob mostovih ...
+- dovoljenje za mesto da plemič → plemič ima naziv mestni gospod → dogovor o davku
+- trgovci in obrtniki osebno svobodni → lahko se selijo brez dovoljenja
+- če je kmet šel v mesto in ga zemljiški gospod eno leto ni zahteval nazaj, postane svoboden
+- pravice:
+    - pravica do obzidja
+    - pravica do sejmov, pobiranja pristojbin (cestnin, mostnin)
+    - pravica do obvezne poti
+        - trgovci morali skozi mesto (če so šli skozi regijo)
+    - ?
+        - zahteva da najprej ponudijo domačim trgovcem (imajo predkupno pravico)
+    - prepoved opravljanja kmečke obrti v radiju okoli mesta
+    - pravica do mestne samouprave
+        - meščani svoje organe oblasti
+            - mestni svet → tvorijo pomembne družine
+            - izvolijo mestnega sodnika
+            - zastopa mesto pred mestnim gospodom
+            - varuje mestne insignije
+        - mestni statut 
+            - ustava mesta
+            - vsa pravila o življenju v mestu
+### Polnopravni meščan
+- v mestu stalno prebivališče
+- vir dohodka
+- izjeme:
+    - plemiči → ker vir dohodka ni trgovanje
+    - duhovniki → ni tipični trgovski vir dohodka 
+    - židje (judje) → naselili v mestno četrt - izollirali od ostalih
+        - geto - najprej v Benetkah - potem to vse judovske četrti (judovski geto)
+        - imeli čut za finance
+            - judje lahko pobirali obresti (ni prepovedi v sv. pismu) → banke, posojalništvo, menjalništvo
+            - banke se niso razvile pri kristjanih
+        - antisemitizem - sovraštvo do judov
+            - posledica nepoznavanja judovske vere
+            - ideja, da so judje dali Jezusa na križ 
+            - krivci za težave
+            - ker so zahtevali obresti na slabem glasu
+        - banka rota → prevrnjena miza → bankrot
+### Ceh
+- združenje obrtnikov iste stroke
+- vsak svojega patrona (zavetnik)
+- znotraj jasna pravila in jasna hierarhija
+    - najprej vajenec (otroci, kot OŠ)
+        - priložnostna dela in učenje
+        - če je imel talent je opravil vajeniški izpit
+    - obrtniški pomočnik → polnopravni član ceha
+        - kot član upošterval pravila vedenja
+        - če umre poskrbijo za družino
+        - poskrbijo za učenje
+        - ceh vsestransko pomaga članom
+        - določena plača, malica, dela prosti dnevi ...
+    - mojster 
+        - če opravi mojsterski izpit
+        - lahko ima svojo delavnico
+- med seboj tekmovali
+- darovali za kapelice, oltarje
+- gonilo razvoja → darovali za določene stavbe (razvoj)
+- nekateri cehi postajali cokla razvoja
+    - upirali hitrim spremembam
+        - nisto dovolili mojsterskih izpiti
+        - ker so imeli proste dni in ostalo kljub naročilu niso delali dovolj hitro
+- začne založništvo
+    - naročniki podpirali odpuščene obrtnike
+    - delajo noč in dan (kot črna žvina)
+    - nastane prva oblika kapitalizma (denar gonilo)
+    - popolnoma prilagojeno trgu (povpraševanju)
+    - trgovec založi z materialom obrtnike po določenem času prevzame produkt
+    - ni več cehovskih pravil - delajo več
+    - v  odspredju kapital → delali po povpraševanju
+    - manufakture - pri težjih izdelkih 
+        - vsak naredi določen del katerega zna najbolje potem najprej
+        - tekoči trak
+- problemi mest 
+    - požari
+    - higijeni
+- trgovci probali ustvariti monopol
+    - izrivali konkurenco
+    - medtem se povežejo in si razdeli jo tržišče
+        - Mestne zveze
+        - najbolj znana S Nemška zveza - Hanza
+            središče Lübec
+            - od Belgije do Rusije, Skandinavije
+            - spuščala tudi v vojne
+# S Italjanska mesta
+- znana po podpiranju umetnikov
+- glavna 
+    - Piza
+    - Genova
+    - Milano
+    - Verona
+    - Padova
+    - glavna Firence
+        - glavna družina medičejci
+        - ne samo politični vladarji 
+        - tudi meceni
+        - razvijali kot republika
+        - postavljali pogoje celo papežu
+    - Benetke - Beneška republika
+- Beneška republika
+    - nastala pod Bizantinsko zaščito
+    - romansko prebivalstvo se pred Barbari zatečejo v lagune
+    - bizanc jim postavi vladarja - DOŽ
+    - zaradi težav Bizanca z muslimani se osamosvojijo
+    - kmalu po l. 1000 prevzamejo celotno bizantinsko trgovalno mrežo
+        - imajo močno ladjevje
+    - glavna rivala Dubrovnik in Zadar
+    - tradicionalna poroka z morjem (posebna ladja)
+    - center je cerkev svetega Marka - relikvije sv. Marka iz Aleksandrije (skrite v svinjini)
+    - KONDOTJERJI - najemniški vojaki - borijo se za  tistega, ki da več
+        - ključni za širitev vpliva Benetk
+    - za Benetke značilna dobra diplomacija
+### Mesta kot intelektualni in kulturni centri v visokem srednjem veku
+- v zgodnjem srednjem veku intelektualna središča samostani
+    - menihi - meništvo pride iz Egipta in Bližnjega vzhoda 
+    - predhodniki puškavniki, asketi
+    - puščavniki se zdrušujejo v skupnosti
+        - misel, da ne moreš priti v nebesa, če nimaš brata, ki bi mu umil noge
+    - nastanek samostanov
+- 1. samostan: Sv. Benedikt - MONTE CASSINO
+    - Sv. Benedikt napiše tudi redovna pravila
+- samostani:
+    - bogata arhikektura
+    - koralno petje
+    - pridelava hrane
+        - ribogojnice
+        - napredno kmetijstvo
+        - gojenje živali
+    - bogate knjižnice
+    - temelj poučevanja je 7 svobodnih umetnosti
+    - rojstvo novega miselnega toka: SHOLASTIKA (11. 12. st.)
+- Sholastika
+    - vera in razum si ne nasprotujeta
+    - pomemben center je Pariz
+    - glavni predstavnik Abelar → filozov, dialektik, retorik - prireja javne diskutacije, zelo samozavesten
+        - enkrat zagleda dekle - Heloiza
+            - se zaljubi vanjo in ker je iz ugledne družine se prebije do nje pod pretvezo učitelja
+            Heloiza zanosi → da bi se prah polegel se dogovorita, da se Heloiza in Astrolab umakneta v samostan →
+            jezni Heloizin stric naroči kastracijo Abelarja → ta se v sramoti umakne →
+            potem se vrne in postane "intelektualna živina"
+        - Abelarjev nasprotnik postane Sv. Bernard (cistercijan)
+        - spor se zaostri → Abelar se umakne v Cluny k opatu Petru častitljivemu
+- v tem času poteka rekonkvista
+    - ponovna osvojitev Iberskega polotoka
+    - Peter astitljivi in drugi učenjaki rešujejo arabske knjižnice (prevodi Aristotela)
+- Abelar v Clunyu umre → truplo pošljejo Heloizi → skupaj ju pokočljejo na pokopališče slavnih v Parizu
+- nekaj desetletij kasneje se v Parizu začne GOTIKA
+- Gotika se širi → severna Italija. pri nas celjska kapela žalostne Matere Božje
+- Gotika nakazuje na bogastvo mest v tem času
+### Mesta kot središča znanosti
+__Univerze__
+- od 12. st. zibelke univerz → skupnost predavateljev in študentov
+- ustanovitelj univerze je moral biti močna politična ali crkvena figura (papež, cesar...)
+- za dobre rezultate mora imeti univerza:
+    - pravno svobodo → odvezani fevdalnih dolžnosti, pravna imuniteta
+    - gospodarsko svobodo:
+        - fevd z rudniki, gozdovi
+        - potem imajo gospodarsko neodvisnost
+- prva univerza v Boloniji (1155) 12. st.
+    - pravice podeli Friderik I. Barbarossa
+- druge univerze:
+    - Pariz, Oxford, Padova, Neapel, Valencia, Salamanca, Cambridge
+    - Ljubljana (1919)
+- prve univerze imajo 4 fakultete:
+    - teologija
+    - filozofija
+    - medicina
+    - pravo
+- 7 svobodnih umetnosti so pogoj (učni jezik Latinščina)
+- posledica cvetenje znanosti:
+    - najbomembnejši izumi:
+        - očala
+        - ura
+        - dimnik
+    - Roger Bacon (očala)
+    - Herman Koroški
+    - Trotula (ženska zdravnica - napotki za ženske)
+    - sv. Hildegarda iz Bingna
+    - sv. Albert Veliki (v glasbo uvede tišino)
+        - učil Tomaža Akvinskega
+- __Tomaž Akvinski__
+    - največji sholastik 
+    - največji krščanski teolog
+    - iz italije
+    - njegov oče v službi friderika IV.
+    - med sporom s papežem se umakne v Neapelj
+    - univerza + vpliv Arabcev i sreča se z Aristotelom (v knjigah)
+    - želi si biti dominikanec → življneje v uboštvu 
+    - starši se ne strijajo (poskusijo z lepa in potem grdo)
+    - dominikanci ga vzamejo pod okrilje i peljejo ga v Pariz (sreča se z Albertom)
+- V 14. st. se začne srednjeveški svet rušiti vzroki:
+    - notranji spori + zunanji vpadi
+    - pešanje cesarske moči
+    - kriza papeštva
+    - kuga (Evropo v 14. st.)
+        - po obleganju Kafe jo prinesejo Mongoli
+        - pomre od 40-70% prebivalstva
+        - ljudje tarnajo → v zadnjem stoletju sr. veka pade senca na celoten srednji vek
+# Mongoli
+- l. 1206 postane Temudžin vrhovni kan - Džingiskan
+- kan = voditelj vseh mongolskih plemen
+- l. 1215 zavzeme Peking
+- prestolnica v Karakorumu → prevzemejo kitajsko kulturo (naslednik Kublej kan prestavi prestolnico v Peking)
+- ustanovi trgovsko povezavo s Perzijo
+    - zaradi spora jo napade
+- l. 1241 prodrejo njegovi potomci proti Evropi pred vrati (en krak Hrvaška drugi Poljska)
+    - Evropa razdrta in bi jo osvojili
+    - umre Kan in se vsi vrnejo na pogreb
+- mongoliji zavlada Kublejkan → prestolnica Peking → države več ne širi ampak jo notranje utrjuje
+- na dvor povabi (konec 13. st.) evropske diplomate Marko Polo
+- Pola prosi za misjonarje → na koncu ni izvedeno
+- država že razpada → po njegovi smrti popolno v razpdu
+- v 14. st. se pod Timur(lenkom) država dvigne 
+    - prestolnica v Samarlandu
+    - proglasi se za Džingiskanovega naslednika
+    - širi imperij → zelo surov 
+    - ljudje bežijo - pridejo v Evropo - Cigani
+- Timur že musliman
+- l. 1402 sulatn Bajazid vs. Timur - bitka pri Ankari
+    - Bajzid premagan
+    - oče v bitki pri Kosovem polju 1389 premaga Srbe 
+    - Bajzid dovolj močen, da bi premagal evropo
+- bitka pri Ankari reši Evropo pred Turki
+- Turki đibki - Evropa bi jih lahko dotolkla
+- po zatonu Mongolov se Turki zopet dvignejo
+- l. 1453 Mehmed II. Osvajalec zavzame Bizanc - postane Istanbul
+- Beg učenjakov iz Bizanca v Evropo (S Italijo) 
+    - učenjaki pripeljejo znanje
+    - v S Italjanskih mestih Renesansa in Humanizem
+- v času Sulemana Veličastnega dvigne imperij do največijega obsega
+    - 1526 premaga Ogre (do SLO meje)
+    - 1529 je pred Dunajem (1. obleganje Dunaja)
+    - prežene jih oktoberski sneg
+    - pozabijo kavo → ustanovljena prva kavarna
+- Turki neporaženi do:
+    - pomorsko 1571 - bitka pri Lepantu
+        - španci, Benečani, Avstrici
+        - spomin je Rožnovencka nedelja (cela Evropa molila)
+    - kopensko 1593 - bitka pri Sisku
+        - sodelujejo tudi Slovenci
+## 100-letna vojna 1337 - 1453
+- traja 116 let - najdlje trajajoča vojna v Evropi
+    - Anglija vs. Francija
+- Gaskonija vsakič, ko je prišel angleški kralj je izrekel francoskemu kralju vazalno prisego
+- l. 1328 - Dinastija Kapetingov izumre
+    - francosi zamenjajo z dinstijo Valois
+- Edvard III. (Anglija) iz dinastije Plantagenet
+    - sorodniki Kapetingov → pričakoval je ozemlje Francije
+    - ne prizna legitimnosti novi dinastiji Valois
+- napetost se stopnjuje do vojne
+    - 1337 - 1453 - vojna
+- številni Francozi so bili na strani Anglije (Burgundija do konca)
+- Anglija pošlje vojsko v Francijo → imajo dobo oborožitev
+    - z loki zavzamejo S mesta
+- vojaške posadke se na francoskih tleh utrdijo
+    - angleži ostanejo v Franciji (ropajo...)
+- francoski kmeti so v slabem položaju
+    - začnejo se upirati svojem kralju
+    - žakerije - upori kmetov v Franciji med 100-letno vojno
+- 1415 umreta Angleški (Henrik V.) in Francoski (Karel VI.) kralja umreta
+    - Karel VII. ni mogel biti okronan, ker je bil Reims pod Angleži
+- __Ivana Orleanska__: 
+    - Angeli ji naročijo naj kralja odpelje v Reims na kronanje
+    - z majhno vojsko podre glavni zid do Reimsa Orleans
+    - Karel je okronan za kralja
+    - Ivana želi, da se Angleži čisto umaknejo
+    - Karel VII. → Karel zmagoviti
+    - uporabljajo baliste, katapulte, topove, loke, trebušete
+    - vojna se začne obračati v prid Franciji
+        -  Ivana se ne strinja s kraljem, ko sklene mir z Angleži
+        - Ivano ugrabijo Burgundijci in jo prodajo Angežem
+        - postavijo jo pred inkvizicijsko sodiše → montirani sodni proces (ve se izid)
+            - cel proces vodi k temu, da jo sežgejo kot čarovnico
+            - obsojeno jo sežgejo v mestu Rouen
+- vojna se nadaljuje in vse kar obdržijo Angleže je Calais [kale]
+- 1453 podpišejo mir (isto leto pade Bizanc)
