@@ -1,0 +1,134 @@
+# industrijska revolucija
+- revolucija je v političnem smislu kratka radikalna sprememba, kar pa samo delno velja za industrijsko revolucijo (radikalna sprememba)
+- Industrijska revolucija začne v Angliji, ker je:
+    - veliko naravnih bogastev
+    - kolonije (trg in vir surovin)
+    - delovna sila -- rodnost in življenska doba večija
+    - izboljšave v kmetijstvu
+    - zaključek procesa ograjevanja 
+        - srensko skupno zemljo so razdelili
+        - čut za lastno zemljo
+        - iz nje hočejo iztržiti največ, kar je mogoče
+    - medicina napreduje (zdravila, cepila izumili v Angliji (tudi babištvo))
+    - politika - politično vodstvo podpira gospodarski razcvet
+        - politične razmere stabilne
+        - naklonjeni gospodarskemu liberalizmu
+            - utemeljil Adam Smith
+            - izgodišče - Država naj se ne umešava v gospodarstvo a naj vzpostavi ugodno klimo 
+                - nižje davke
+                - manj birokracije
+            - negativne posledice so divji kapitalizem
+                - izgoriščanje otrok in delavcev
+    - ceste, prekopi, transport (McAddam makedam)
+    - razcvet se pokaže tudi v bogastvu prebivalstva
+    - začnejo delati statusni simboli (oblačila)
+# Oblačila
+- povečalo povpraševanje po tekstilu - tekstila začne primanjkovati
+- tkalke ne morajo tkati tako hitro kot zahteva povpraševanje
+- 1733 John Kay izumi leteči čolniček (omogoči hitrejše tkanje)
+- z čolničkom se podvoji ali potroji tkalska hitrost
+- ker potrebujejo več preje pride prejska lakota
+- Hargreaves izumi "predilnik jenny" in " predilnik mula"
+    - zelo pohitri delo predenja, ker dela vzporedno več prej
+- problem je bil ob nizkih vodostojih, ker reke niso mogle poganjati industrijskih obratov - išče se rešitev
+- James Watt da veliko izboljšav parnemu stroju in njemu tudi pripišejo izum parnega stroja 1783
+- velika olajšava, ker nisi več vezan na moč reke ampak ti moč daje parni stroj
+- ugotovijo, da lahko s tem izboljpajo tudi rudniške lokomotive (in pumpe) (pozitivna povratna zanka)
+- pride prvi parnik - izumi Fulton 1807
+- Stephenson 1825 naredi lokomotivo Rocket za prvi želežniški potniški promet
+- kasneje izboljšave
+- ladijski vijak Ressel (Čeh, ki živi na kranjskem)
+- Parni stroj hitro preide iz tekstilne industrije na vse nivoje (povsod kjer potrebujejo pogon)
+- med časom revolucij se Velika Britanija zelo razvije in po revolucijah Evropa vidi razvitost VB
+- Belgija - mesta francija - Nemška zveza manj - Habsburška monarhija Dunaj (Jesenice) - S Italija - Švedska 
+- slabo Balkan - Španija - Portugalska - Rusija
+- Hitro se razvije ZDA in Japonska
+- veliko železnega - postane glavni material 
+- para je pogonska sila
+- zaadi koncentracije industrije v mestih ljudje na veliko selijo v mesta 
+- propad obrti na podeželju 
+- velika večina ljudi v mestih 90%
+- 1798 - opozarjajo (Robert Maltus) problem o prenasoljenosti
+    - predlaga omejevanje rojstev z vzdržnpstjo spolnosti
+- vsa mesta hitro zgrajena in brez infrastrukture (preveč ljudi) -- lažje dobiti delovno silo -- plača pada
+- ženske se pojavijo za stroji zardi potrebe po delu
+- začetek feminizma - sufražetke
+- začnejo delati tudi majhni otroci -- bili uporabni, ker majhni
+- veliko poškodb zaradi strojev, ki niso bili zaščiteni
+- delale tudi globoko noseče ženske
+- pojavi se mit o temačnem srednjem veku a je ta čas dosti bolj mračen
+- bogataši živeli v raskošju na svojem delu mesta
+# Politične posledice
+- velike spremembe v družbi povzročijo strah (pred stroji ...)
+- pojavi se Ludizem (razbijači strojev)
+- v Angliji sprejeli smrtno kazen z Ludiste
+- Čartistično gibanje (listinsko gibanje)
+    - s podpisevanjem peticij zahtevajo zaščito žensk, otrok in delavcev (omejili otroško delo na 10 ur)
+    - imelo vpliv samo se ni spremenilo v politično gibanje
+- v 30./40. letih začnejo utopični socialisti 
+    - ideja, da delavci zapustijo tovarne i nnaredijo svoje obrate, tako da jih delodajalci potrebujejo in jim plačajo več
+- komunizem 
+        - Marx - možgani
+        - Engels - denar
+    - proletarjat - delavstvo
+    - spremenila socialno idejo, da se povežejo na proletarjat
+    - 1848 - Komunistični manifest
+    - ideja izgaja iz teze, da je celotna zgodovina boj med razredi (plebejci vs. patriciji, kmetje vs. fevdalci...)
+    - danes kapitalisti vs. proletarjat 
+    - problem, ker kapitalist vzame denar od proletarjata
+- socializem vs. komunizem
+    - socializem cilj povezanost v en enak razred, da postane raj na zemlji
+    - komunizem - ko raj že postane
+- vera naj bi bila opij za ljudstvo, s pomočjo katere kapitalisti vzdržujejo nadzor
+- Markx prvi začel genocidne ideje (za dosego raja je treba svet spucat določene rase)
+- I. delavska internacionala 1864
+    - povezava delavcv med narodi
+    - prvi zbor v Londonu v idejo za delavske stranke na ravni narodov 
+    - stranka izraz delavksega nezadovoljstva
+    - propade, ker se skregajo
+- II. delavska internacionala 1889
+    - razglasijo 1. maj za praznik dela
+    - 8 urni delavnik
+- konec 19. st. socialdemokrati (demokratična stran) in komunisti (nasilna stran)
+### Krščanski socializem
+- odgovor cerkve na delavsko problematiko
+- tudi pred dokumentom papeža obsajali ljudje v cerkvi, ki so se trudili za pravice delavcev
+- 1. Don Bosko že 1851 začne delati delavske pogodbe
+- uradno cerkev delavsko problematiko predstavi 1891 
+- tedanji papež Leon XIII. Inciklika Rerum Novarum
+- začetek delavskega socializma
+- v incikliki opredeli, da je izkoriščanje delavca greh in je potrebno sožitje med delavcem in delodajalcem
+- nastanejo krščanski sindikati 
+- papež odsvetuje sodelovanje komunisti
+### Anarhizem
+- ideologija v 19. st. še posebej v rusiji
+- teži k razgradnji zahodne civilizacije (nasilno)
+- Bakunin glavni teoretik anarhizma - predlaga popolno uničenje državnega aparata, ker naj bi škodil delavstvu
+- vsi občutki krivde so meščanska čustva, ki jih mora revolucionar zatreti
+- vse ideologije svoje sindikate
+# Znanstveno tehnična II. faza industrijske revolucije
+- 1870 začetek sovpada z združitvijo nemčije
+- gonilo Nemčija, Zda in Japonska
+- namesto pare elektrika in namesto železa jeklo
+- znanstveniki delajo v ekipah in imajo veliko kapitala, ker jih podpirajo podjetja, da bi iznašli nove izume
+- scientizem - znanstveni optimizem
+    - vse se bo dalo premagati in razloćiti z znanostjo
+- naravoslovne znanosti > družboslovne znanosti
+- gospodarstvo naročnik znanosti
+??LIST
+- gospodarske razstave so templji revolucije 1889 Pariz
+- 2. faza povzroči spremembe na području Kapitalističnih povezav
+- podjetja se povezujejo, da is lahko privoščijo laboratorije in izume 
+- podjetja z istim izdelkom se povežejo v kartel in se dogovarjajo za razdelitev
+- koncerni so podjetja različnih panog, ki se povezujejo v razvoj nekega izdelka (vsako svoj del)
+- naredijo delniške družbe - del podjetja, ki s podjetjem raste in pada
+- Francoski plitik 
+    - Imperialistična politika je hčerka kapitalistične politike
+- Imeperializem
+    - težnja po širjenju imperija ( za surovine... )
+    - pripelje do 1. sv. vojne
+- družbena mobilnost povzroča krepitev političnega življenja
+- ljudje bolj informirani o politiki 
+- nosilci kapitala se vpletajo v politiko in politika je v službi kapitala
+- pojav množične demokracije - povzpon meščanstva (srednjega razreda)
+- emancipacija žensk

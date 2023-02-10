@@ -1,0 +1,47 @@
+# Rojstvo ZDA
+- 1606 -- prva izmed 13 Angleških kolonij -- Virginija (Pokahontas)
+- med prvimi kolonisti tudi puritanci -- radikalna različica puritanstva - zaradi sovraštva odpotovali v novi svet -Main Flover - ustanovili novo kolonijo
+- ko so prišli so sestaroselci zahvaljevali -- Thanks giving day
+- ni so imeli sovražnika (še pposebej po Pariškem miru=
+- vse ok razen ko se začne pritisk Angleške krone na kolonije
+- Anglija zelo šibko prisotna v kolonijah -- po 7 letni vojni se odloči, da priklene kolonije nase -- hoteli da polnejo državno blagajno
+- Angleži očitali kolonijam, da so med vojno trgovali z Francozi
+- Kolonisti niso bili zastopani v parlamentu zato niso hoteli davkov
+- povečali napetost med kolonijami in Anglijo
+- 1765 -- Stamp act (davek)-- razjezi Američane
+- T act -- svojem podjetju dali monopol nad trgovino z čajem
+- v S Ameriki prihajale razsvetljenske ideje -- ideja, da je ljudstvo vladar -- vladar se ima zahvaliti ljudstvu za to da vlada
+- med meščani začnejo pisati brošure in knjige v katerih kritizerajo stanje
+- znan Thomas Paire -- Comon sense - zdrava pamet -- nesmiselnost da otok vlada celini
+- 1779 v Bostonu angleške vojaške enote streljajo na protestnike __Bostonski pokol__
+- streli pozvali Američane -- 1773 oblečeni v Indijance zmetali čaj v morje in pavaljali kapitana in ladijo v katran in perje __Bostonska čajanka (Tea act)__ -- povod za vojno
+- Angleži zaprli luko dokler ne plačajo čaja
+- 1774 -- 1. kontinentalni kongres -- bojkot angleškega blaga
+- 1775-1783 traja vojna
+- najprej Angleška krona uspešnejša -- ko pride Washington na vodilno mesto organizira vojsko in se obrne v korist Američanov
+- 1776 - Američani se odločijo za osomasvojitev ( prej niso bili prepričani)
+- Jefferson, Franklin - American declaraticon of independence - 4. 7. 1776
+- skoraj cela dekleracija našteva napake Angleške krone -- obrazložitev osamosvojitve
+- dekleracija se naslanja na razsvetljensko idejo, da je vsak enak in je zaradi napak Angleške krone osamosvojitev legitimna
+- Francozi začnejo podpirati Ameriško vojno za neodvisnost -- financirajo američane
+	- s tem ko podpira ameriško revolucijo se navzame razsvetljenskih idej
+- George Washington vodi Ameriško vojsko
+	- njegova desna roka Lafayette -- glavni pri francoski revoluciji
+- američani 1783 dosegli, da angleži priznajo ZDA
+- kolonije so po osamosvojitvi mogli zdrućiti v državo 
+	- dekleracija je samo odcepitev od Angleške krone
+- morali so narediti ustavo, ki jo podpre parlament vsake kolonije
+	- 1787 so izdali ustavo - zelo kratka in jedernata
+- po novi ustavi oblast na zakonodajo izvršno in sodno
+- v kongresu prestavniški dom in senat
+	- v senatu vsaka država dva prestavnika
+	- v prestavniškem domu poslance glede na št. prebivalstva
+- predsednik ZDA izvršna oblast -- prvi predsednik Washington
+- ameriška ustava nekajkrat dopolnjena 
+	- amandma -- dopolnitev ustave
+	- zahteva veliko večino
+- prvi predsedniki Washington, Adams, jefferson
+- odločijo za Izolacizem - do I. WW
+- v času 5. predsednika Monroja 1823 razglasijo Monrojevo doktrino
+	- razglasijo se za varuhe celotne Amerike in bi vsak napad tako na S kot J Ameriko razumeli kot napad 
+	- tako postavijo za glavne v Ameriki

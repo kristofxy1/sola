@@ -1,0 +1,178 @@
+# Francoska revolucija
+- nasilna revolucija
+- ne konča fevdalizma - fevdalizem že končan do takrat
+- mnogokrat meščn, ki kupi grad zlorabi kmeta na podlagi starih listin - stari režim Ancien Régine(a prej kmet ni več potreboval plačevati ker je že zmenjen z fevdalcem )
+- med vladanjem Ludvika XIV. XV. XVI. država zadolži za potrebe dvora -- povečanje davkov
+- 1788 Bankrot države
+- možen tudi vulkan, ki naredi veliko slabih letin.
+- mnogo govorcev, ki hočejo revolucijo -- govorijo, da je težava v kralju 
+	- knjiga "Kaj je 3. stan" -- opazuje vloga 3. stanu
+- Ludvik XIV. neha sklicevati parlament
+- ob bankrotu Ludvik XVI. skliče parlament - napove v 1788
+- 1789 v Versaillu sklican parlament
+- v mestih burno, ker niso vedeli kako poteka parlament
+- problem v glasovanju - ali po številu (3. stan) ali po stanovih (1. in 2. stan)
+- na zborovanju hočejo obnoviti državno blagajno
+- tudi del 1. in 2. stanu strinja za 3. stanom
+- debatu kmalu zašle na pogovore o človekovih pravicah, enakoprabnosti v parlamentu, dovoljenosti smrtne kazni...
+- ker ni več govora o davkih kralj raspusti državni zbor 17. 6. 1789
+- zaklenili dvorano po malici -- grejo na pogovor v teniško igrišče
+- naredijo prisego v žogalnici 
+	- prisežejo da se ne razidejo dokler ne naredijo ustave
+- sebe naredijo za narodno skupščino
+- kralj prizna narodno skupščino kot parlament
+- kralj v okolici pariza zbira svoje čete
+	- očitajo mu, da namerava vojaško posredovati -- zbira vojsko za zaščito oskrbovalnih poti
+- odpusti priljubljenega finančnega ministra
+	- Desmoulins pozove k orožju
+	- na ???Kraljvem vrtu??? so se dogajali govori, ker je bil zasebn in zato policija in država ni imela vpliva
+- ljudje vstopajo v narodno gardo pod vodstvom La Fayetta (v Ameriki desna roka Gorga Washingtona)
+- (da bi se zaščitili pred intervencijo)
+- v domu invalidov delijo orožje, ker je ogromo ostarele vojske
+- narodna garda navali na dom invalidov -- orožje je ni streliva
+- govorijo, da ima kralj municijo skrito v Bastiliji
+- Bastilija je nekdanji kraljevi zapor -- v tem času ni bil več zapor (imelo je zlovešč pridih)
+- ko izvejo za skladišče -- masa ljudi uniči Bastilijo
+- Padec Bastilije razglašen za začetek revolucije __14. 7. 1789__ (sicer dogodek nima tako velikega pomena)
+- narodna skupščina začne oblikovati dekleracijo o pravicah človeka in državljana
+- med tem se na podeželju širi vlik strah (govori se, da je v Parizu ???)
+- v zvesku ??????
+ko so radikalne Leve skuipne prepovedane začeli bežati
+- Morat najhujši zbeži v kanalizacijo Danton in Robespierre ostaneta
+- ob pisanju ustave je bila politika stabilna na sredini
+- v enem letu pride radikalna Levica na oblast zaradi obeta vojne
+- 1. protifrancoska koalicija - Prusi in Avstrijski monarh
+- Aprila 1792 se začne 1. protifrancoska koalicija
+- v Franciji stanje obupa
+- Skrajni levičarji kličejo k orožju in nacionalizmu
+- ustanovijo revolucionarno komuno - začnejo ubijati plemiče in duhovnike
+- hoteli ubijati humano -- giljotina
+- napisali bojno pesem __marseljezo__ -- francoska himna
+- sanhiloti 10. 8. vdrli v kraljevo palačo in pobili švicarsko gardo -- v Lucernu spomenik
+- kralj in kraljica odvedena v zapor in giljotinirana
+- po giljotiniranju kralja se okrepi napad na francijo
+- ko se leva sredina malo upre in predlagagajo konec nasilju jih giljotinirajo -- __Revolucija žre lastne otroke__
+- Robespiere - v konventu (parlamentu) razglasil republiko 21. 9.
+- v novoizvoljenem konventu odbor za občo blagajno -- protikorupcijska komisija -- Robespiere predseduje -- najvplivnejši politik
+- samo ubijanje na giljotini
+- Marat podpisoval iz banje smrtne obsodbe -- bil zaklan od sorodnice Žirondistov
+- ostala Danton in Robespiere (giljotiniran z odborom za občo blaginjo)
+- obdobje jakopincev 
+- odbor za občo blaginjo je diktatura
+- samostane in cerkve spreminjajo v templje razuma (javne hiše)
+- ukinjen krščanski koledar -- vpeljali revolucionarni koledar
+- mesci poimenovani glede na vreme
+- po Franciji se zgražajo nad novostmi
+- najhuje v pokrajni Vandeja -- tja poslana vojska, ki naredi čistko
+- krepijo napadi iz sesednjih držav -- splošna vojaška obveznost 
+- vojska organizirani glede na sposobnost -- v zelo disciplinirano, udarno vojsko
+- revolucija v dobi ko žre lastne otroke
+- revolucionarji se bojijo za svoje življenje - povežejo in naredijo zaroto proti Robespieru -- 2. termidor leta 2 -- termidojski upor -- konec najbolj nasilne dobe revolucije
+- spet volitve -- 5 članski direktorji -- 5 direktorjev
+- začne obdobje direktorija 1795 - 99 -- glavna naloga zadržati sovražnika na naravnih mejah Francije: alpe, pireneji, ren 
+- s pomočjo močne jakobinske vojske jim uspe
+- direktorij je koruptiven
+## Napoleon
+- 1767 - rodi Napoleon Bonaparte v plemiški družini v Korziki
+- zasedli francozi -- šola v francoskih šolah -- kot mlad bil za samostojno Korziko (nacionalisti)
+- 1793 prekine z nacionalisti -- navduši se nad revolucijo -- nabral vojaške zmage pri Jakobincih
+- ob ustanovitvi direktorija kratko nima dela (ker jakopinec, skrajnik) -- direktorij ga potrebuje za zatretje rojalistov
+    - direktorij zatira skrajno desne in leve upore - Napoleon v službi direktorija napada predvsem rojaliste
+- 1796 imenovan za vojskovodja S Italjanske armade
+- bojeval na območju rimljanov -- začne navduševati nad Cezarjem
+- bral rimske antične pisce -- v njem povzročajo preobrazbo
+- v S Italiji ustanovi (isalpinsko republiko (odvzame Avstrijcem))
+- vdre v notranje Avstrijske dežele -- Slovenijo
+- navdušen nad bogastvom Idrijskega rudnika (tudi to vir bogastva)
+- ko je prišel v naše kraje je povzročal paniko in strah
+- poročanje v Vodenikovih novicah
+- Napoleon hoče umiriti -- pove, da ni tak kot Avstrijski zavojevalci
+- 1797 mir  v campu Formidu 
+    - Avstrija podpiše premirje
+    - izgubi območje Belgije
+- konec 1. protifrancoske koalicije
+- Napoleon z Avstrijci takten -- podari dele ukinjene Beneške republike 
+- celotno etnično območje Slovenije pod eno oblastjo (tudi beneška slovenija)
+- Napoleonov uspeh razjezi Angleže -- začnejo bati Napoleona
+- 2. protifrancoska revolucija 1798 - Anglija, Avstrija, Rusija
+- odloči, da bo udaril Egipt - direktorij potrdi
+    - Egibt tesen zaveznik z Angleži -- čez njega nadzor nad bljižnim vzhodom
+- udarec Napoleonu zadane Angleški poveljnik Nelson - preseneti Napoleona in požge ladjevje
+- nelson zelo ugleden
+- Francoski vojaki odkrili Kamen iz Rosette
+    - 1822 Champolion razvozla hieroglive
+    - takrat ukradejo Angleži 
+    - danes v Londonu
+- Napoleon se ob porazu v egiptu izmuzne z družbo in zapusti vojsko
+- S svojimi diplomatskimi spretnostmi predstavi poraz kot Zmago
+- Ko vidi, da ima podporo, 1799 naredi državni udar in ustanovi konzulat -- 3 konzuli po rimskem zgledu -- on 1. ostali lutke
+- pomaga si z Fouché in Talleyrand
+- pomembna vloga pri krepitvi in podpori konzulata
+- uspe jim konkordat - dogovor s Papežem -- modernizira šolstvo...
+- Za vse sklicani referendumi -- lažni občutek, ki ga dajejo mediji
+    - to je Bonapartizem
+- tudi na vojaškem področju proti 2. protifrancoski revoluciji uspešen
+- 1800 uspe premagati Avstrijo
+- Zelo dobro znal olepšati vse dogodke, da se je pokazal kot pravi imperator
+- prisili Anglijo v mir, ki se ga ne drži
+- zaradi politike mu zmanjkuje denarja (modernizacija, novinarstvo)
+- 1803 se to vidi, da napolni državno blagajno ZDA proda vsa francoska ozemlja v S Ameriki -- sicer ne preveč velik denar a vseeno vsaj nekaj (drugače verjetno prevzeli nasilno)
+- 1804 ukine konzulat in hoče postati cesar - za kronanje potrebuje papeža
+- v Notredam - cerkvi vaše gospe se krona za cesarja
+- Papež samo statist - Napoleon izvaja kronanje - sam krona ženo Josephine
+- odnos med papežem in napoleonom slab 1804 razglasi Code Napoléon - Napoleonov zakonik, ki povzame idejo razsvetljenske zakonodaje -- položaj žensk slabša osnova za mnoge Evropske zakonike
+- 1805 tretja protifrancoska koalicija Anglija, Avstrija , Rusija
+- Avstrijo in Rusijo premaga v bitki pri Austerlitzu
+- Spretno zmaga
+- z vojsko na Jug proti Dunaju (Slavolok na Moravskem)
+- Avstrijci podpišejo Bratislavski mir -- Avstrija izgubi veliko ozemlja
+- Naslednje leto Avstrijcki cesar odpove kroni RNC 1806
+- Preživel poraz na morju pri Španiji - POnovno premaag Nelson
+- Napoleon - kopno, Angleži - morje
+- Rusi se zatečejo k Prusom 
+- Rusi + Prusi -- 4. protifrancoska revolucija (1806/1807)
+    - Pruse zelo oklesti
+    - z Rusi sklene 1807 mir v Tilsitu (Napoleonov vrh)
+- Zaveda se, da Anglije ne mora zlomiti
+- začne z Celinsko zaporo - 1806 jo napove
+    - Prepove pristaniščem trgovati z Anglijo
+    - ker ima nadzor ali posredni nadzor nad celo Evropo
+    - naredi Satelitske zveze
+        - ??? zberi satelitske zveze
+    - portugalska samostojna
+- V odgovor Angleži spodbudijo Španski upor proti Francozom
+- odpor zatrejo krvavo
+- 1808 - Napoleon pošlje veliko vojske v Španijo
+- Manj vojakov na vzhodu
+- Avstrija ponovno zbira vojsko proti Napoleonu
+- Napoleon misli, da bo Ruski cezar pritisnil na Avstrijo
+- prihaja do nesoglasij med Napoleonom in Aleksandrom (hoče Napolonov padec)
+- 1810 poroči Marijo Louiso - prejšno ženo pošlje na dvorec
+- Marija Louisa je Avstrijska princesa in se z njo poroči, da uredi onose z Avstrij
+- zgleda, da bo vzpostavil mir
+- 1811 - Rusija krši celinsko zaporo
+- Napoleon hoče prisiliti Rusijo -- naredi kazen
+- julija gre na Rusijo proti moskvi
+    - že na poti ima težave: neugodno vreme, bolezni, slabo kordiniranje, 
+    - ruski gverilski napadi uničujejo oskrbovalne poti in za sabo požigajo polja, da Francoska vojska strada.
+- Napoleonova vojska z velikimi izgubami pride do Moskve
+- Rusko vodstvo se sprašuje ali je vredno braniti Moskvo
+    - prevlada ideja, da se žrtvuje moskvo za rešitev Rusije
+- Napoleon čaka na predajo, ki se ne zgoi
+- Rusi podtikajo požare po moskvi
+- Napoleon ukaže vrnitev domov
+    - na poti pritiska zima
+    - ogromno vojske zmrzne
+    - celotna pot nazaj pokol na neurejene Francoske vojake
+    - Bitka pri Berezini
+- Na koncu se vrne samo majhen delež vojske
+- celotna ekspidicija na Rusijo polom
+- 1813 oblikuje nova protifrancoska koalicija
+- Jeseni 1813 bitka narodov pri Leipzigu Napoleonov prvi veliki poraz
+    - Avstrijci, Rusi, Prusi brez Angležev (problemi z Ameriko) 
+        - za vrnitev Napoleonu za celinsko zaporo Anglija prepove kolonijam trgovanje z Francijo
+- Napoleon obkoljen - Pariz zaseden marca 1814
+- Vojska prisili Napoleona v predajo
+- Aprila 1814 napoleon odstopi z mesta cesarja Francije
+- Evropski monarhi se zberejo na kongresu
+

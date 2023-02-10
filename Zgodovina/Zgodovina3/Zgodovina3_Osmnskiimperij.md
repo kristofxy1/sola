@@ -1,0 +1,48 @@
+# Osmanski imperij 17:3
+- upori v Osmanskem imperiju
+- posebej v revolucijah "trpijo" multinacionalne tvorbe 
+- v 19. st. Bolnik ob Bosporju - vzrok na fevdalnem sistemu
+- Janičarji postali mafijska družba države na osnovi širitve
+- narodi se upirajo
+## Srbi
+- nezadovoljstvo nad Turki - idejo širi pravoslavna cerkev
+- Jničarski voditelji DAhije sklenejo zatreti upor 1804 pobije vodilnike __Seča Knezova__
+- spodbudijo srbe k 1. srbskemu uporu
+- Dorde Petrovič - črni peter - Karadorddjević - vodi upor
+- na stran Srbov se postavi Rusija
+- Turki obljubijo avtonomijo 1812 - Napoleon napade Moskvo
+- Turki vzamejo avtonomijo, ker ni Rusije, ki bi jih branila
+- Srbija takrat samo Beograd z okolico __BEograjski pašaluk__
+- Avtonomija samo za Beograjski pašaluk 
+- po jugu polovili Srbe in jih vzidali v stolp v svarilo
+- čez mejo Savo si bil že v Avstriji
+- 1815 - 2. Srbski upor - Vodi Miloš Obrenovič
+- Rusija spet podpre Srbe - Turki pustijo avtonomijo 
+- Sultanov Hatišerit 1830 prisega
+    - Srbija dobi avtonomijo znotraj Turške države
+- obrenoviči za dedne kneze v Begrajskem pašaluku
+## Grki
+- 1814 tajna organizacija Helerija (prijateljstvo)
+    - prizadeva za boj proti Turkom in ustanovitev Grške državi
+    - ideja zelo veliko - cela mala Azija
+- Grki v mornarici in ruski politiki in v Ameriki - veliko denarja, ki podpira
+- Ideja, da bi Kapodistrijas (Ruski zunanji minister) mišljen za voditelja
+    - ni postal zaradi svojega položaja
+- Ipsilant določen za voditelja
+    - ideja, da na večih koncih turškega imperija začne upor
+    - napade s svojo vojsko (Bil ruski častnik) na Turčijo čez Moldavijo in Vlaško
+- v Turčiji poražen - pobegne čez mejo v Avstrijo
+- Metternich aretira in zapre v hišni pripor 
+    - sicer proti Islamu a zagovarja status "QUO" -- naj ostane tako kot je
+- Grki uspejo na Peoloponezu
+- razglašena Grška država 1821/1822
+- Turki izvedejo pokol na Hiosu - vse civiliste
+- sprožen val ogorčenja po Evropi
+- začn krepiti Filohenizem -- ljubezen do Grštva -- podpora grčiji
+- 1829 premaga Turke -- kapitulira
+- 1830 Grčija postane država republika
+    - vlada Kapodistrias v Nauplíonu
+- Aretiran 2 leti kasneje -- Evropske države odločijo za monarhijo
+- V Grčijo povabljena Bavarska vladarska hiša, ker nimajo svoje
+- Oton I. postavljen za monarha
+- z razliko od Srbije popolnoma osvobodili (Beograjski pašaluk samo delno avtonomijo)
